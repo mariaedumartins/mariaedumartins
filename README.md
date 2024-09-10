@@ -13,4 +13,6 @@ Vou contar um pouquinho sobre mim:
 - 💅 Adoro fazer as unhas...
 - 🤠 Amo animais principalmente cavalos...
 
-![](https://tenor.com/pt-BR/view/cute-cat-gif-25910152)
+![](https://media1.tenor.com/m/f_saBHiUTz0AAAAC/cute-cat.gif)
+
+
